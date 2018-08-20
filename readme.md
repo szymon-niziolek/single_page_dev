@@ -1,0 +1,1 @@
+Prosty mockup z wykorzystaniem
